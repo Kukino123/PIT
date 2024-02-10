@@ -1,3 +1,8 @@
 # PIT
 Samuel_Kukan_uloha1
-git init
+
+
+
+studium bla bla ano 
+dobnre 
+oke
